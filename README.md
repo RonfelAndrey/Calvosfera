@@ -1,4 +1,4 @@
-##  Calvosfera: A sua busca pelos maiores cabeças rapadas da internet! 🥶🥶
+##  Calvosfera: A sua busca pelos maiores cabeças rapadas da internet! 🥶🥶 - Imersão alura
 
 😶‍🌫️ **O que é a Calvosfera?** 😶‍🌫️
 
